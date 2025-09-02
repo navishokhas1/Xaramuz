@@ -1,2 +1,2 @@
 # Xaramuz
-NOS CHEKMA
+akkurATNIY nimadir
